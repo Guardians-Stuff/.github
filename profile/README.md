@@ -1,1 +1,1 @@
-Goodbye everyone. Not much time for me left here. @StormyGalaxy, enjoy being owner.
+11/24/2025 - Are we coming back? Do we have new projects? We'll see :>
